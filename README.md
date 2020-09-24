@@ -1,1 +1,1 @@
-# jones2018.github.io
+www.J&Jclothing.com
